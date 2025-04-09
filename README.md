@@ -10,7 +10,7 @@ Meu nome é kemi
 
   kemilly.iglesias.martins@escola.pr.gov.br
   
-  - @sally.kky (instagram)
+  - @kemiiy_ (instagram)
  
 
     ![](https://media.tenor.com/7RoKGSkAV7oAAAAd/larry-johnson-sal-fisher.gif)
